@@ -1,4 +1,3 @@
 ## TP ACE FAIT PAR NAMOUS NASSIM 
 
-VIDEO : 
-https://github.com/user-attachments/assets/cb3bdc2e-7a88-42bb-be6b-70e18b778469
+ https://github.com/user-attachments/assets/cb3bdc2e-7a88-42bb-be6b-70e18b778469
